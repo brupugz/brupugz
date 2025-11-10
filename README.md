@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://raw.githubusercontent.com/brupugz/brupugz/main/4dc7da57.gif" width="600" alt="border gif">
+  <img src="https://raw.githubusercontent.com/brupugz/brupugz/main/8a8a2081.gif" width="600" alt="bubble divider">
 </p>
 
 <p align="center">
