@@ -13,7 +13,7 @@ zᶻ
 <p align="center">ꕤ Hello! My name is Pug/Pugnacious, I love making friends, I'm a bit shy but I try to be as talkative as possible! 
 
 <p align="center">ꕤ I am a fanartist mainly for JJBA, my yumeship ; BruPug and my other ship Diavolo x Bruno!
-૮₍ ˃̶ ꇴ ˂̶ ₎ა
+<p align="center">૮₍ ˃̶ ꇴ ˂̶ ₎ა
 
 <p align="center">ꕤ I love to draw, and color, I'm a paci collector, I like to collect bows and play my keytar!
 
