@@ -6,7 +6,7 @@ zᶻ
 
 ꕤ JJBA P5 
 
-ꕤ 19 | SFW Agere | ND
+ꕤ 19 | SFW Agere | ND ૮₍ • ˕ • ₎ა <img src="https://files.catbox.moe/cdkl5w.gif" width="60" alt="bin gif"> ૮₍ • ˕ • ₎ა
 
 Bruno Bucciarati Yume! | Sharing!
 
