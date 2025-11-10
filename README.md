@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://raw.githubusercontent.com/brupugz/brupugz/main/bluebowborder.png" width="600" alt="blue lace border">
+  <img src="https://raw.githubusercontent.com/brupugz/brupugz/main/4dc7da57.gif" width="600" alt="border gif">
 </p>
 
 <p align="center">
