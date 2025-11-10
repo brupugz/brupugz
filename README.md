@@ -21,4 +21,6 @@ Bruno Bucciarati Yume! | Sharing!
 
 ꕤ Do not interact if you are under 16+ please!
 
-![Profile views](https://komarev.com/ghpvc/?username=brupugz&color=purple)
+<p align="center">
+  <img src="https://komarev.com/ghpvc/?username=brupugz&color=add8e6&style=for-the-badge" alt="Profile views">
+</p>
