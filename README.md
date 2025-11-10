@@ -6,7 +6,7 @@
   <img src="https://media.tenor.com/3obViLHM3Y8AAAAd/jojo.gif" width="400" alt="jojo gif">
 </p>          
 
-zᶻ
+<p align="center">zᶻ
 <p align="center">ꕤ ૮˶- ﻌ -˶ა⌒)ᦱ
 
 <p align="center"> I love mai papa Bruno!
