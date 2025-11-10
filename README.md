@@ -6,10 +6,12 @@ zᶻ
 
 ꕤ JJBA P5 
 
-ꕤ 19 | SFW Agere | ND ૮₍ • ˕ • ₎ა <img src="https://files.catbox.moe/cdkl5w.gif" width="60" alt="bin gif"> ૮₍ • ˕ • ₎ა
+ꕤ 19 | SFW Agere | ND 
 
 Bruno Bucciarati Yume! | Sharing!
-
+<p align="center">
+  <img src="https://files.catbox.moe/cdkl5w.gif" width="400" alt="bin gif">
+</p>
 ꕤ Hello! My name is Pug/Pugnacious, I love making friends, I'm a bit shy but I try to be as talkative as possible! 
 
 ꕤ I am a fanartist mainly for JJBA, my yumeship ; BruPug and my other ship Diavolo x Bruno!
