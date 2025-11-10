@@ -1,9 +1,4 @@
 <p align="center">
-  <img src="https://raw.githubusercontent.com/brupugz/brupugz/main/VID_20251109_170951_505~2.gif" width="400" alt="bruno gif">
-</p>
-
-
-<p align="center">
   <img src="https://media.tenor.com/3obViLHM3Y8AAAAd/jojo.gif" width="400" alt="jojo gif">
 </p>          
 zᶻ
@@ -14,6 +9,10 @@ zᶻ
 <p align="center">ꕤ JJBA P5 
 
 <p align="center">ꕤ 19 | SFW Agere | ND 
+
+<p align="center">
+  <img src="https://raw.githubusercontent.com/brupugz/brupugz/main/37e27c36.gif" width="50">
+</p>
 
 <p align="center">Bruno Bucciarati Yume! | Sharing!
 
