@@ -1,6 +1,7 @@
 <p align="center">
-  <img src="https://raw.githubusercontent.com/brupugz/brupugz/main/VID_20251109_170951_505-2.gif" width="600" alt="bubble divider">
+  <img src="https://raw.githubusercontent.com/brupugz/brupugz/main/VID_20251109_170951_505~2.gif" width="400" alt="bruno gif">
 </p>
+
 
 <p align="center">
   <img src="https://media.tenor.com/3obViLHM3Y8AAAAd/jojo.gif" width="400" alt="jojo gif">
