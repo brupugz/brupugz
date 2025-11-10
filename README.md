@@ -1,5 +1,19 @@
-## Hi there 👋
+<p align="center">
+  <img src="https://tenor.com/bC9R7.gif" width="400" alt="cute gif">
+</p>
+           
+zᶻ
+ꕤ ૮˶- ﻌ -˶ა⌒)ᦱ
 
+ꕤ JJBA P5 
+
+ꕤ 19 | SFW Agere | ND
+
+Bruno Bucciarati Yume! | Sharing!
+
+Hello! My name is Pug/Pugnacious, I love making friends, I'm a bit shy but I try to be as talkative as possible! ૮₍ ˃̶ ꇴ ˂̶ ₎ა
+
+ꕤ I engage in safe, SFW age regression and self-shipping as a healing tool, please ask nicely if you have any questions. ꕤ
 <!--
 **brupugz/brupugz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
