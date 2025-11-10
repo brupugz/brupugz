@@ -44,3 +44,7 @@ zᶻ
 <p align="center">
   <img src="https://komarev.com/ghpvc/?username=brupugz&color=add8e6&style=for-the-badge" alt="Profile views">
 </p>
+
+<p align="center">
+  <img src="https://raw.githubusercontent.com/brupugz/brupugz/main/8a8a2081.gif" width="600" alt="bubble divider">
+</p>
