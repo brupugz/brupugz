@@ -27,11 +27,11 @@ Bruno Bucciarati Yume! | Sharing!
   <a href="https://www.instagram.com/pugglyn" target="_blank">ꕤ instagram ꕤ</a>
 </p>
 
-@<p align="center">
+<p align="center">
   <a href="https://www.tiktok.com/@puggalyn" target="_blank">ꕤ tiktok ꕤ</a>
 </p>
 
-ꕤ Discord | @pugglyn 
+<p align="center">ꕤ Discord | @pugglyn 
 
 ꕤ Dms : open!
 
