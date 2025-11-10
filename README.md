@@ -8,7 +8,7 @@ zᶻ
 
 <p align="center">ꕤ 19 | SFW Agere | ND 
 
-<p align="center">Bruno Bucciarati Yume! | Sharing!
+<span style="color:#add8e6;">pale blue text</span><p align="center">Bruno Bucciarati Yume! | Sharing!
 
 <p align="center">ꕤ Hello! My name is Pug/Pugnacious, I love making friends, I'm a bit shy but I try to be as talkative as possible! 
 
