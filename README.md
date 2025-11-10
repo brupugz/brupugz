@@ -19,4 +19,6 @@ Bruno Bucciarati Yume! | Sharing!
 
 ꕤ I engage in safe, SFW age regression and self-shipping as a healing tool, please ask nicely if you have any questions. ꕤ
 
-ꕤ Do not interact if you are under 16+ please! 
+ꕤ Do not interact if you are under 16+ please!
+
+![Profile views](https://komarev.com/ghpvc/?username=brupugz&color=purple)
