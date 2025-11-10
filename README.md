@@ -22,10 +22,15 @@ Bruno Bucciarati Yume! | Sharing!
 ꕤ Do not interact if you are under 16+ please!
 
 ꕤ ↘️Socials↙️
+
 ꕤ Instagram | @pugglyn
+
 ꕤ TikTok | @puggalyn
+
 ꕤ Discord | @pugglyn 
+
 ꕤ Dms : open!
+
 <p align="center">
   <img src="https://komarev.com/ghpvc/?username=brupugz&color=add8e6&style=for-the-badge" alt="Profile views">
 </p>
