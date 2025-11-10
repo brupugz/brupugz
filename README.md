@@ -3,8 +3,9 @@
 </p>
 
 <p align="center">
-  <img src="https://media.tenor.com/3obViLHM3Y8AAAAd/jojo.gif" width="400" alt="jojo gif">
-</p>          
+  <img src="https://raw.githubusercontent.com/brupugz/brupugz/main/Tumblr_l_11204865553119.gif" width="400" alt="Bruno Bucciarati gif">
+</p>
+
 zᶻ
 <p align="center">ꕤ ૮˶- ﻌ -˶ა⌒)ᦱ
 
