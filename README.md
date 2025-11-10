@@ -4,7 +4,7 @@
 zᶻ
 <p align="center">ꕤ ૮˶- ﻌ -˶ა⌒)ᦱ
 
-i love <span style="color:#add8e6;">bruno bucciarati</span> 💙
+<p align="center"> I love mai papa Bruno! ⚓
 
 <p align="center">ꕤ JJBA P5 
 
