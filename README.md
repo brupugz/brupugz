@@ -1,7 +1,6 @@
 <p align="center">
-  <img src="https://tenor.com/bC9R7.gif" width="400" alt="cute gif">
-</p>
-           
+  <img src="https://media.tenor.com/3obViLHM3Y8AAAAd/jojo.gif" width="400" alt="jojo gif">
+</p>          
 zᶻ
 ꕤ ૮˶- ﻌ -˶ა⌒)ᦱ
 
