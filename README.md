@@ -10,9 +10,7 @@ zᶻ
 
 <p align="center">ꕤ 19 | SFW Agere | ND 
 
-<p align="center">
-  <img src="https://raw.githubusercontent.com/brupugz/brupugz/main/37e27c36.gif" width="50">
-</p>
+<img src="https://raw.githubusercontent.com/brupugz/brupugz/main/37e27c36.gif" width="50" alt="tiny gif">
 
 <p align="center">Bruno Bucciarati Yume! | Sharing!
 
