@@ -25,7 +25,9 @@ Bruno Bucciarati Yume! | Sharing!
 
 ꕤ Instagram | @pugglyn
 
-ꕤ TikTok | @puggalyn
+ꕤ TikTok | @<p align="center">
+  <a href="https://www.tiktok.com/@puggalyn" target="_blank">🎀 tiktok 🎀</a>
+</p>
 
 ꕤ Discord | @pugglyn 
 
