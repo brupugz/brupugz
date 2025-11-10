@@ -1,18 +1,20 @@
 <p align="center">
+  <img src="https://raw.githubusercontent.com/brupugz/brupugz/main/bluebowborder.png" width="600" alt="blue lace border">
+</p>
+
+<p align="center">
   <img src="https://media.tenor.com/3obViLHM3Y8AAAAd/jojo.gif" width="400" alt="jojo gif">
 </p>          
 zᶻ
 <p align="center">ꕤ ૮˶- ﻌ -˶ა⌒)ᦱ
 
-<p align="center"> I love mai papa Bruno! ⚓
+<p align="center"> I love mai papa Bruno!
 
 <p align="center">ꕤ JJBA P5 
 
 <p align="center">ꕤ 19 | SFW Agere | ND 
 
-<img src="https://raw.githubusercontent.com/brupugz/brupugz/main/37e27c36.gif" width="50" alt="tiny gif">
-
-<p align="center">Bruno Bucciarati Yume! | Sharing!
+<p align="center">Bruno Bucciarati Yume! | Sharing! 💍 
 
 <p align="center">ꕤ Hello! My name is Pug/Pugnacious, I love making friends, I'm a bit shy but I try to be as talkative as possible! 
 
